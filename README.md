@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @HannesTamm
-- 👀 I’m interested in programming and designing and art and bodybuilding and sports
+- 👀 I’m interested in programming and designing and art and sports
 - 🌱 I’m currently learning
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me, mail me hannestamm15@gmail.com
